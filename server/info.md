@@ -1,0 +1,2 @@
+190425lchd_db_user
+lNN1mdJ7aXMuas6E
